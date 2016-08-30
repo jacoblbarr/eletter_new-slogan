@@ -1,9 +1,9 @@
 Making A Difference - Building Websites
 
-We have a new slogan.  Our new slogan is "Making a difference - building websites"!   
+iRapture.com has a new slogan.  Our new slogan is "Making a difference - building websites"!   
 
-It is based on why we our passionate about our work.
+It is based on why we are filled with great passion for our work.
 
-We have an opportunity with each project to be a blessing to someone.
+With each project, an opportunity to make a difference is present.
 
 We want to make a difference with you!
